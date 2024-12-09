@@ -1,5 +1,6 @@
 # fax
- hi  .  .  .『••✎••』𝐍𝐨𝐰 𝐥𝐨𝐚𝐝𝐢𝐧𝐠.                            .                            .        
+ hi  .  .  .『••✎••』𝐍𝐨𝐰 𝐥𝐨𝐚𝐝𝐢𝐧𝐠.                            .                            .        ![image](https://github.com/user-attachments/assets/1376935d-4278-4036-9c93-5dea95b444b3)
+
 
 
  ↳˳;; ❝ ᵕ̈೫˚∗   🍂     .     💤
@@ -23,5 +24,7 @@
 
 
 
-![obrázek_2024-12-09_220815378-removebg-preview](https://github.com/user-attachments/assets/8ef01b86-0d2a-49af-a547-7f7223eb7123)    `*:;,．★         .       .  💤
+   ![image](https://github.com/user-attachments/assets/a8a75f94-2a9b-4b64-9ff3-08ea5e9e70cf)
+   
+`*:;,．★         .       .  💤
 
