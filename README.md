@@ -1,5 +1,6 @@
 # fax
- hi  .  .  .『••✎••』𝐍𝐨𝐰 𝐥𝐨𝐚𝐝𝐢𝐧𝐠.                            .                            .        ![image](https://github.com/user-attachments/assets/bd6f4230-2be8-4f3e-b616-f8b5dbd1111a)
+ hi  .  .  .『••✎••』𝐍𝐨𝐰 𝐥𝐨𝐚𝐝𝐢𝐧𝐠.                            .                            .        ![image](https://github.com/user-attachments/assets/66618036-06cb-48a9-9687-e67129e0e0c8)
+
 
  
 
