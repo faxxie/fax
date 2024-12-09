@@ -1,6 +1,6 @@
 # fax
  hi  .  .  .『••✎••』𝐍𝐨𝐰 𝐥𝐨𝐚𝐝𝐢𝐧𝐠.                            .                            .        
- ![image](https://github.com/user-attachments/assets/f7e1cdd0-2b10-4094-9de5-ad2896e63aba)
+ 
 
 
 ·˚ ༘₊· ͟͟͞͞꒰➳ . pronouns ,, he/him (u can see it on my main profile too blindo, .
@@ -17,6 +17,7 @@
  tbh i dont really add friends,,  .  🍂 bai . 
 
 
+![removal ai _7436fa7a-efe6-4eb2-be3f-3480df30ff1d-obrazek_2024-12-09_221124818](https://github.com/user-attachments/assets/9fa93386-e4b5-4d64-bac6-67fb5a8c22c9)
 
 
 
