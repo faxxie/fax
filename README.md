@@ -18,6 +18,7 @@
 
 
 
-![image](https://github.com/user-attachments/assets/b2e76377-fe26-4388-a70c-a5754216ca87)
 
+
+![obrázek_2024-12-09_220815378-removebg-preview](https://github.com/user-attachments/assets/8ef01b86-0d2a-49af-a547-7f7223eb7123)
 
