@@ -18,7 +18,7 @@
  『••✎••』 . thats all cuz im lazy to write it all so yeh,, .   🎶 
 
 
- tbh i dont really add friends,,  .  🍂 bai . 
+ 
 
 
 
